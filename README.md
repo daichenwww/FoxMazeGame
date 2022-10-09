@@ -1,1 +1,1 @@
-### cute fox with little chicks and scared marmot :)
+### cute fox with little chicks and scaring marmot :)
